@@ -1,6 +1,6 @@
 <img width="1280" height="1280" alt="1 Sem Título_20251214100753" src="https://github.com/user-attachments/assets/eedfc46d-a945-47d0-82ec-1784f8088b22" />
 
- $${\color{red}Hello!!\ i'm\ Abaddon\ :P}$$
+ $${\color{red}Hello!!\ i'm\ Abaddon/Randal\ :P}$$
 
 $${\color{red}You\ can\ follow\ freely}$$
 
