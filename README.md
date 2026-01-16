@@ -25,7 +25,4 @@ $${\color{red}you\ can\ text\ anytime}$$
 
 
 
-<img width="1200" height="1280" alt="1 Sem Título_20251215105211" src="https://github.com/user-attachments/assets/d2c4790b-e0a8-4500-bc98-08e5d2c2327d" />
-
-
-I'll remake soon! I did that so It wont be a blank space, it makes me ick
+![015a9132849f318974760bf603393675](https://github.com/user-attachments/assets/637d9a0e-c2cc-4ccf-bb5d-f5f348d3bcac)
