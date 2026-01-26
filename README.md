@@ -1,5 +1,8 @@
 Call me Griffith btw, im 18y.o, ill remake ts soon
 
+
+if I could paint the sky... would all the stars then shine a bloody red?
+
 ![-hC9XeHFbIunc2P9UqiyO](https://github.com/user-attachments/assets/938993bc-f14c-4565-a26d-c9738d121711)
 
 
