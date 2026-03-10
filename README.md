@@ -1,4 +1,4 @@
-𝅙𝅙𝅙𝅙𝅙𝅙       𝅙𝅙𝅙𝅙[main](https://griiffith.carrd.co/)  ·  [2nd carrd](https://nnaoyazeninn.carrd.co/)   ·  [strawpage](https://buggytheclowwnn.straw.page)
+𝅙𝅙𝅙𝅙𝅙𝅙       𝅙𝅙𝅙𝅙[main](https://griiffith.carrd.co/)  ·  [strawpage](https://buggytheclowwnn.straw.page)
 
 
 
